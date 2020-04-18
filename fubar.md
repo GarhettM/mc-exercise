@@ -10,3 +10,7 @@
 
 ## this is the way im living and i refuse to change. I got a judgement against me down there in florida.
 
+### this is the only way left to live... branch for each feature, acp after each feature, merge and PR after edits are agreed upon.
+
+### or waste countless hours....
+
