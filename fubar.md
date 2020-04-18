@@ -15,3 +15,6 @@
 ### or waste countless hours....
 
 #### ME AND LINDSEY DID THIS FOR THE GREATER GOOD FOR GOD KNOW WHY. IT WAS FRUSTRATIGNG FOR ME TO WORK WITH SOME WHO IS SO CONTROLLING I WANTED TO QUIT 
+
+
+# muahahahahahahah lindsey has spoken
